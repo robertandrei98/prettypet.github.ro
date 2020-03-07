@@ -1,0 +1,2 @@
+# prettypet.github.ro
+Magazin
